@@ -1,4 +1,4 @@
-### Hi there, I am jlfx09 if you're curious regarding my username, it is derived from characters that I like in films ^^ 👋
+### Hi there, I am jlfx09 if you're curious regarding my username, it is derived from characters that I like in games ^^ 👋
 
 To help with getting to know me better here are some information regarding myself:
 
